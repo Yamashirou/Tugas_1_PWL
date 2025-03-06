@@ -1,1 +1,2 @@
-﻿# Tugas_1_PWL
+﻿# Tugas_1_PWL 
+ Nama: Bintang Rifky Ananta - NIM: A11.2023.15116
